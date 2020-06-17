@@ -1,3 +1,3 @@
-# Welcome to my blog
+# WELCOME TO MY HOME PAGE
 
-I'm glad you are here. I plan to talk about ...
+_I'm glad you have arrived_ __this is will be a great time__.
